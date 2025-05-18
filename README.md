@@ -3,32 +3,16 @@
 
 $${\color{limegreen}Introductions}$$
 
-- I’m @KavehsBeloved
-- A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Kaveh}$$
-- Pronouns: $${\color{pink}She/Her}$$, $${\color{orangered}They/Them}$$
-- Age: 21
-- Birthday: 11/10
+- Just call me $${\color{red}Kaveh}$$
+- Pronouns: $${\color{pink}He/Him}$$, $${\color{orangered}They/Them}$$
+- Age: 27
+- Birthday: 7/9
  <br/>
  
 $${\color{fuchsia}Like/s}$$:
-- ***Kaveh***, Drawing, Gaming, Music, EDM genre, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, EN/JP VA enthusiast
-<br/>
+- ***Seira***, Drawing, Music, EDM genre, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy and Art Aesthetic, the Moon and the Stars
+- - <br/>
 
-$${\color{aqua}Fave \space YouTubers/VTubers}$$:
-- Markiplier
-- Jacksepticeye
-- Gab Smolders
-- Insym
-- DanTDM
-- CDawgVA
-- Doro44
-- BranOnline
-- Tuonto
-<br/>
-
-VTubers
-- CyYu, Ironmouse, and K9Kuro
-<br/>
 
 $${\color{Aquamarine}Topics \space of \space Interest/s}$$:
 
