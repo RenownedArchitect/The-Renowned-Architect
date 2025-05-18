@@ -11,7 +11,7 @@ $${\color{limegreen}Introductions}$$
  
 $${\color{fuchsia}Like/s}$$:
 - ***Seira***, Drawing, Music, EDM genre, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy and Art Aesthetic, the Moon and the Stars
-- - <br/>
+<br/>
 
 
 $${\color{Aquamarine}Topics \space of \space Interest/s}$$:
