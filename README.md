@@ -9,11 +9,11 @@
 - Birthday: 7/9
  <br/>
  
- $${\color{fuchsia}Like/s}$$:
+$${\color{fuchsia}Like/s}$$:
 - ***Seira***, Drawing, Music, classical genre, coffee, biscuits, Ice Cream, Art Aesthetic, the Moon and the Stars
 <br/>
 
- $${\color{silver}Dislike/s}$$: 
+$${\color{silver}Dislike/s}$$: 
 - Toxicity, ERP's, and then Life in general/pos
 - Get to know me and you'll know my peeves, and as a warning you'll either like me or hate me, but i dont really care either way 🥰
 
