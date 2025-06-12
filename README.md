@@ -10,7 +10,7 @@ Introductions
  <br/>
  
 Like/s:
-- ***Seira***, Drawing, Music, classical genre, coffee, biscuits, Ice Cream, Art Aesthetic, the Moon and the Stars
+- ***Seira, my wife***, Drawing, Music, classical genre, coffee, biscuits, Ice Cream, Art Aesthetic, the Moon and the Stars
 <br/>
 
 Dislike/s: 
