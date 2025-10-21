@@ -1,6 +1,3 @@
-
-![Screenshot_20241002_043521](https://github.com/user-attachments/assets/f22eec54-c82a-43f0-9592-9ca71cc47c7c)
-
 Introductions
 
 - Just call me Kaveh, Veh-Veh or Veh
